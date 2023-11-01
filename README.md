@@ -1,2 +1,2 @@
-![](https://images-ext-2.discordapp.net/external/zd8CGgTxXIKNRTOCWg8YtDpkHrfwJoVkMXag9flMMIE/%3Fsize%3D1024/https/cdn.discordapp.com/avatars/681553671364018196/94fd33dc53f1662660d718a067bea6fa.png?width=473&height=473)
+![](https://media.discordapp.net/attachments/1168116022558076968/1169071069156614186/360_F_556291020_q2ieMiOCKYbtoLITrnt7qcSL1LJYyWrU.jpg?ex=65541147&is=65419c47&hm=c9ac54ee62c91a784aa1b3e170af6187c21889b73a2d9aa9372dca7d7213efdc&2.discordapp.net/external/zd8CGgTxXIKNRTOCWg8YtDpkHrfwJoVkMXag9flMMIE/%3Fsize%3D1024/https/cdn.discordapp.com/avatars/681553671364018196/94fd33dc53f1662660d718a067bea6fa.png?width=473&height=473)
 # JANO
